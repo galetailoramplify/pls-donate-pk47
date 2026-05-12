@@ -1,4 +1,4 @@
-#  
+#  Experience natural disaster survival like never before with secret Scripts for natural disaster survival, the #1 Script. Includes auto-farm and
 
 
 
